@@ -2,5 +2,5 @@
 - 👀 I’m interested in Competetive coding and Competetive gaming 
 - 🌱 I’m currently learning Full Stack Web Development
 - 📫 How to reach me ... Well you can mail me @ OwaizKhan1111@gmail.com
-- 📫 How else? ... @0waiz.khan @ Instagrame
+- 📫 How else? ... @0waiz.khan @ Instagram
 - ⚡ Fun fact: ... ummm nothing nvm
